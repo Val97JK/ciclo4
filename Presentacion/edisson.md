@@ -1,0 +1,1 @@
+Hola, mi nombre es John Edisson Merchán López, en este ciclo 4 de misión Tic soy el analista. Soy ingeniero sanitario de profesión con especialización en Estadística.
