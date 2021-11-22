@@ -1,1 +1,0 @@
-Hola, mi nombre es Valentina Villán Pacheco en este ciclo 4 de misión Tic soy la Scrum Master. Actualmente soy estudiante universitaria de ingenieria civil.

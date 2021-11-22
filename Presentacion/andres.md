@@ -1,1 +1,0 @@
-Hola, soy Andrés Felipe García Cavanzo, el administrador de base de datos para este Ciclo 4 de Misión TIC en la universidad UDEA, Saludos.
